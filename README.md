@@ -1,3 +1,3 @@
 # Sign up
 
-[Visit the page](https://cutt.ly/](https://cutt.ly/register)
+[Visit the page](https://cutt.ly/register)
